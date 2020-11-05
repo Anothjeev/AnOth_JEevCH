@@ -82,3 +82,31 @@ From the last owner Ferdinand Kinský, the garden and the villa and accessories 
 In 1986, the summer house was closed and reconstructed due to emergency reasons. It was reopened in 2005 and serves as an Ethnographic Museum. The garden is still partly undergoing renovation work.
 
 Source of information: Gardens and parks in Bohemia, Moravia and Silesia, PIS, www.envis.cz
+
+## Klamovka
+From the hill straight down, or from Podbělohorská to Plzeňská Street, there is a medium-sized, originally Rococo garden, which was bought by the Clam-Gallas family in the middle of the 18th century, after which the locality is also named.  
+
+Originally, as in many convenient places in Prague, there were vineyards and they belonged to the Carthusian monastery.
+
+The romantic park, which is already the work of members of the Clam-Gallas family, certainly encourages walks, and the playground invites to visit parents with children, who also have their own kindergarten here. However, in modern history, Klamovka gained its reputation especially in the 70s and 80s of the 20th century, due to the restaurant operated in the chateau, or the falconry. There was a gathering of the underground, dissidents and other supporters, and there was probably no doubt that it used to be busy and that the members of the Public Security, or the state security at that time, appeared here quite often, there can be no doubt. That was the legendary Klamovka.
+
+Today, however, the park enchants with the preserved gems left behind by the Clam-Gallas family. The neo-Gothic gazebo hosts art exhibitions, the Rococo Temple of the Night with stained glass in the dome, the late Baroque garden gazebo with a greenhouse used as an art studio or the statue of the Family or the statue of Kassil, a favorite of General Edward Clam-Gallas.
+
+The chateau itself still belongs to Sokol and there is also a garden restaurant where people used to dance. The Klamovka Club of the House of Children and Youth has settled in a Baroque, residential building with a mansard roof since 1995 , where concerts, literary evenings and other cultural programs are held.  
+
+###### Links
+[restaurant](https://www.zahradnirestaurace.cz/)
+[Sokol](http://www.sokolkosire.cz/web/index.html)
+[Klub Klamovka](http://www.klubklamovka.cz/)
+
+### Images
+![96257_4_klamovka3](https://user-images.githubusercontent.com/56120683/98234051-2bf91e00-1f60-11eb-9e13-b28da18540ad.jpg)
+
+![96129_4_klamovka2](https://user-images.githubusercontent.com/56120683/98234083-374c4980-1f60-11eb-90d1-2e911eacc58e.jpg)
+
+### history
+The original vineyard belonging to the Carthusian monastery, later owned by the burgher Antonín, was bought in 1757 by the Clam-Gallas family. At first, in the Rococo style, after the purchase of the side vineyards of Okrouhlík and Schönfeldka in a romantic style, private lands were transformed, but the buildings retained a rather Rococo appearance, in which some have survived to this day. The Prague gardener Josef Blecha, who was hired by Eduard, son of Count Christian Clam-Gallas, took care of the flourishing of the park. The garden was open to the public on Sundays, in 1895 it became permanently open to the public. At that time, the whole area was bought by the mayor of Košíř, Matěj Hlaváček, who had a garden restaurant and a dance hall built in the chateau. The newest attraction was on display here in 1904 - the cinema, which was run by Dismas Šambor - Ponrepo. Klamovka was interested in the film,
+
+For better accessibility, the owner of the building also built an electric railway at his own expense, only the third in Prague, which, however, was initially used by only a few people. Hlaváček ended up in debt and hanged himself. The building fell into disrepair, especially after the First World War, its condition was deplorable. In 1915, a falconry festival was held here, but it was not until the 1930s that the building was converted into a falconry hall, modern tennis courts were created here and the garden restaurant was also restored. Family houses were built on part of the land in 1924–1926.
+
+Source of information: Gardens and parks in Bohemia, Moravia and Silesia, PIS, http://smichov.blog.cz/
