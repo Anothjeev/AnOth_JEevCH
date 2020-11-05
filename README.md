@@ -51,3 +51,34 @@ Not only the park, but also the adjacent square in the immediate vicinity of Cha
 The place was also famous in pre-November times, when people protesting against the communist regime met secretly in the neighboring Grand Priory Square by the so-called Lennon Wall (a wall with a portrait of John Lennon). These meetings were closely monitored by the secret police and participants were often persecuted.
 
 Source of information: Gardens and parks in Bohemia, Moravia and Silesia, PIS.
+
+
+## Kinsky Garden
+In addition to landscaping, which included demanding landscaping and varied planting of mixtures of mostly domestic, but also foreign, woody plants, he had a summer house built in the Empire style and built a complex waterworks, a total of 380 meters long gallery, thanks to which water could be supplied as a villa. , as well as the garden, and also got to two ornamental lakes with a waterfall.
+
+From the originally private garden, after the purchase of the areas of the municipalities of Smíchov and the city of Prague in 1901, the garden became publicly accessible, and it was planned to build ethnographic orchards in it. Due to the financial demands, the big plans were abandoned and in the end this idea was implemented in a much more modest design.  
+
+The ethnographic collections of the National Museum were placed in the villa and the garden was gradually supplemented with several folk artifacts: a wooden bell tower from Dolní Bojanovice and Baroque martyrdoms. A monument to the actress Hana Kvapilová was also erected here.
+
+A rarity is the Orthodox wooden church of St. Michal, transported in 1929, on the occasion of the tenth anniversary of the annexation of Subcarpathian Russia, from Medvědovce near Mukachevo.
+
+The summer house, now called according to the Musaion collections , and the café can still be visited today. His collections include examples of folk costumes, tools, but also examples of customs and traditions, in addition to the permanent exhibition, there are also current exhibitions, concerts of folk music or demonstrations of crafts and customs.
+
+###### Links
+[Musaion](https://www.nm.cz/)
+
+### Images
+![96265_4_kinskeho3](https://user-images.githubusercontent.com/56120683/98233286-1afbdd00-1f5f-11eb-907a-f8b5279b8552.jpg)
+
+![96275_4_kinskeho1](https://user-images.githubusercontent.com/56120683/98233302-22bb8180-1f5f-11eb-927f-ff8460a0ac7f.jpg)
+
+### history
+The original vineyards were located here sometime in the 12th century. After the Hussite conquests, they were destroyed, then restored and lasted until the Thirty Years' War. Around 1730, the land belonged to the court of Maria Anna Libštejnská of Kolovrat, but gradually it was not deserted and it was popularly called the Vrabcovna.
+
+In 1828, they were bought by Růžena Kinská, the mother of Prince Rudolf, who in the same year began building a magnificent garden designed by František Höhnel and building a summer house according to the architect Jindřich Koch. The construction of the magnificent building with Ionic columns and a triangular tympanum, a garden with ten greenhouses for tropical plants, other buildings and a water gallery took a total of eight years, when in 1836 the prince died. The whole work was completed by his widowed wife Vilemín with the help of Bedřich Wünscher, Höhnel's successor as economic director. Despite the fact that the garden was not open to the public, those interested had the opportunity to visit it for tickets that were issued in the Kinský Palace on the Old Town Square.
+
+From the last owner Ferdinand Kinský, the garden and the villa and accessories were bought by the village of Smíchov and Prague, which made it accessible to the public. The extension of Holečkova Street at the lower edge of the garden significantly affected the space and thus disrupted the compositional balance of the entire park.
+
+In 1986, the summer house was closed and reconstructed due to emergency reasons. It was reopened in 2005 and serves as an Ethnographic Museum. The garden is still partly undergoing renovation work.
+
+Source of information: Gardens and parks in Bohemia, Moravia and Silesia, PIS, www.envis.cz
